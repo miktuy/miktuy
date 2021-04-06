@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! My name is Mike. I'm glad to see you on my page)
 
 <!--
 **miktuy/miktuy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
